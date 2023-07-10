@@ -2,7 +2,8 @@
 
 
 
-[Resume analysis](https://github.com/ibezawith/Profile/assets/135276938/4e2abedb-8522-41af-956f-e1413772f868)
+![Resume analysis](https://github.com/ibezawith/Profile/assets/135276938/8dc27928-de8b-4b14-8082-9b5c5177e8d4)
+
 
 
 
